@@ -1,5 +1,5 @@
 # Bullet's osu!skins
-a.
+[Folder with all skins](https://drive.google.com/drive/folders/1S8ogi79taFUfZXOYM5GJfnbWyhr1dRHJ)
 
 
 # [#Bullet's Seoul](https://drive.google.com/file/d/1r9UTdKfRMwJda3TWBXZUqjYf3VfSse8y)
@@ -19,3 +19,7 @@ a.
 
 # [cutegirl [Modified]](https://drive.google.com/file/d/1UmpwjoAPkamNazY2zGZsEtHEPXzoH04R)
 ![](https://i.imgur.com/vHMv5op.png)
+
+
+# [#cent [Modified]](https://drive.google.com/file/d/1klGBEtSn77VvvRjP9Be__KHkS1ZFIpDI)
+![](https://i.imgur.com/LwRCf15.png)
