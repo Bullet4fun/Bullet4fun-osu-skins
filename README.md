@@ -1,5 +1,5 @@
 # Bullet's osu!skins
-[Folder with all skins](https://drive.google.com/drive/folders/1S8ogi79taFUfZXOYM5GJfnbWyhr1dRHJ)
+[Folder with all skins](https://bit.ly/Bullet4fun-skins-folder)
 
 
 # [#Bullet's Seoul](https://drive.google.com/file/d/1r9UTdKfRMwJda3TWBXZUqjYf3VfSse8y)
