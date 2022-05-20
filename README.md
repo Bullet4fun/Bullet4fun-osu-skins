@@ -3,7 +3,7 @@
 
 
 # [#Bullet's Seoul](https://drive.google.com/file/d/1r9UTdKfRMwJda3TWBXZUqjYf3VfSse8y)
-![](https://i.imgur.com/1rgaqOD.png)
+![](https://i.imgur.com/k0sJAEL.png)
 
 # [- Azer8dawn [Modified]](https://drive.google.com/file/d/1x_BXyudRx7AQRg7PG6RdWsksFsKvOycj)
 ![](https://i.imgur.com/zqUCZqc.png)
